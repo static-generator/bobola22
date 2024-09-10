@@ -12,6 +12,7 @@ Social Media
 ![image](https://github.com/user-attachments/assets/717f692b-9883-4fb5-8219-e74d76b0da2c)
 
 *Hobby*
+
 ![image](https://github.com/user-attachments/assets/00173e9b-d48c-42b0-be03-daf487a286c0)
 
 *Favorite Songs*
