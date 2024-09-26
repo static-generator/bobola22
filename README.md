@@ -3,14 +3,15 @@
 ### *Francis Harry > Lopez*
 #### Abella, Naga City
 ---
-Social Media                                                       Foods
+Social Media
 - [Instagram](https://www.instagram.com/)
 - [Facebook](https://www.facebook.com/)
 - [Tiktok](https://www.tiktok.com/explore)
 
-*Hobby*
-
-![image](https://github.com/user-attachments/assets/c73eba63-80a4-476f-83c9-9c045b4613f9)
+Hobby
+- Mamiss ka
+- mag imagine ng moments na kasama ka
+- kausap ka
 
 
 *Favorite Songs*
