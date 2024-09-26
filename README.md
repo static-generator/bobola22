@@ -4,6 +4,7 @@
 #### Abella, Naga City
 ---
 "To achieve a beautiful life, have a beautiful mindset."
+
 Hobby
 - Play sports
 - Hang out with friends
